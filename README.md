@@ -1,0 +1,1 @@
+# Kredit_narxlarni_bashorat-_qilish
